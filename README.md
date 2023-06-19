@@ -1,5 +1,5 @@
 # Cancer is caused by damage to Cellular Respiration! That's Why Sugar is SO Horrible for it!
-New Discoveries & Understanding of Cancer Causation & How to Treat it: [The SHOCKING ROOT CAUSE of Cancer &amp; How To STARVE It Naturally | Dr. Thomas Seyfried](https://youtu.be/lEzPt-sRmAc)
+Amazing New Discoveries & Understanding of Cancer Causation & How to Treat it! [The SHOCKING ROOT CAUSE of Cancer &amp; How To STARVE It Naturally | Dr. Thomas Seyfried](https://youtu.be/lEzPt-sRmAc)
 
 # Relation:
 ## Ketogenic diet
