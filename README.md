@@ -7,6 +7,7 @@ One of the most effective Treatments for cancer!
 sch: https://www.google.com/search?q=ketogenic+diet
 - https://en.wikipedia.org/wiki/Ketogenic_diet
 - https://en.wikipedia.org/wiki/Ketogenesis
+- https://en.wikipedia.org/wiki/Ketosis
 
 ## book: Anticancer. A New Way of Life
 In 2007 he said the Same thing. He has been Validated, by Dr. Thomas Seyfried! You cut it's Food supply to halt it's growth: sugar!
