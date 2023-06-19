@@ -1,2 +1,2 @@
 # Genetics.
-New Understanding of Cancer Causation &amp; Healing: [The SHOCKING ROOT CAUSE of Cancer &amp; How To STARVE It Naturally | Dr. Thomas Seyfried](https://youtu.be/lEzPt-sRmAc)
+New Discoveries & Understanding of Cancer Causation & How to Treat it: [The SHOCKING ROOT CAUSE of Cancer &amp; How To STARVE It Naturally | Dr. Thomas Seyfried](https://youtu.be/lEzPt-sRmAc)
